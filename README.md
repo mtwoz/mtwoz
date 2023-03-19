@@ -1,1 +1,1 @@
-Why are you here.
+Have a good day!
